@@ -1,7 +1,8 @@
 
 
 
-![42c4ab547f569f9606725302917509df_image](https://github.com/user-attachments/assets/3518c67f-09fa-4875-8abc-514c58aab402)
+![yellow-heart-pixel-divider](https://github.com/user-attachments/assets/a7f320e9-132a-4fcb-8a74-8961742fdc4f)
+
 
 
 Name: Bennet (bug, if youre my bf)
@@ -16,7 +17,7 @@ Fun fact: I have broken most of my bones and now im extremely flexible
 
 DRAW ON MY STRAW PAGE PRETTY PLEASEEE
 
-![2891357b7785cef0be76528efd15dccd_image](https://github.com/user-attachments/assets/dabfe959-4ba6-46a5-8dd2-e64f39a06a10)
+![61BQn-nuKfL](https://github.com/user-attachments/assets/256518db-5688-425c-9c9d-b526168dad44)
 
 
 
