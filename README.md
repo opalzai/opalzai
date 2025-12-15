@@ -1,23 +1,4 @@
 
 
 
-![yellow-heart-pixel-divider](https://github.com/user-attachments/assets/a7f320e9-132a-4fcb-8a74-8961742fdc4f)
-
-
-
-Name: Bennet (bug, if youre my bf)
-
-Age: 16
-
-Pr/ns: He/They/it
-
-Taken?: YES I LOVE MY BF OLLIE AHHHHHHHHHH
-
-Fun fact: I have broken most of my bones and now im extremely flexible
-
-DRAW ON MY STRAW PAGE PRETTY PLEASEEE
-
-![61BQn-nuKfL](https://github.com/user-attachments/assets/256518db-5688-425c-9c9d-b526168dad44)
-
-
-
+<img width="1080" height="1920" alt="1000019897" src="https://github.com/user-attachments/assets/b794d0ba-9ed0-4ddd-89f9-18142756c91c" />
